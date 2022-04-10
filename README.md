@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about History, interest things, Idea, Startup.
 - 📫 How to reach me: rajuhasan.cs@gmail.com
 - 😄 Pronouns: Raju
-- ⚡ Fun fact:  am good listener, I like to work seriously. 
+- ⚡ Fun fact:  Iam good listener, I like to work seriously. 
